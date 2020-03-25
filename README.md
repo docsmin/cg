@@ -1,2 +1,2 @@
-#FinallyKnowWhatIDid\^o^/
+#FinallyKnowWhatIDid^^
 This is my space for computer graphics files!!
